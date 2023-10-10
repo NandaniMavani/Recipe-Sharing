@@ -1,0 +1,6 @@
+Team Info:
+Nandani Mavani - n.mavani001@umb.edu
+Sai Kumar Agam - Saikumar.Agam001@umb.edu
+Sai Harshith Chinta - s.chinta002@umb.edu
+Sruthi Damera - Sruthi.damera001@umb.edu
+Sai Deepthi Maganti - S.maganti001@umb.edu
